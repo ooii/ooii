@@ -1,0 +1,5 @@
+- 👋 Hello, @ooii, alias Farid
+- 👀 I’m interested in a lot of things
+- 🌱 I’m currently learning few things
+- 💞️ I’m looking to collaborate on many topics
+- 📫 How to reach me? Send en email or give me a call.
